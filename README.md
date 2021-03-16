@@ -1,0 +1,2 @@
+# Hosa
+Hope Orphans Support and Advocacy (HOSA) is a relief, developmental and advocacy non-profit making community Based organization committed to working with the local communities (families),OVC and their households to overcome the likely causes of vulnerability and community injustices that affect the most disadvantaged ones, HIV/AIDS inclusive. HOSA is considerably dedicated to protecting, supporting and advocating for the most vulnerable people chiefly: Widows and children in the community.
